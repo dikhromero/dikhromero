@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dikhromero
+- 👀 I’m interested in ... Testing new Android apps & applications 
+- 🌱 I’m currently learning ... Blockchain
+- 💞️ I’m looking to collaborate on ... 
+- 📫 How to reach me ... [Twitter](https://www.twitter.com/DMero64)
